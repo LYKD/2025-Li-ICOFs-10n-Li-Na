@@ -1,1 +1,1 @@
-# 2025-Li-ICOFs-10n-Li-Na
+# 2025-Li-ICOFs-10n-Li/Na
